@@ -8,16 +8,16 @@ Veränderungen für die Frau, den Mann und die Partnerschaft sind unausweichlich
 
 Wir möchten Sie ermutigen, mit uns ins Gespräch zu kommen, wenn ...
 
-• Sie Fragen zu Schwangerschaft und Geburt haben
-• es zu Konflikten mit dem Partner oder den Eltern kommt
-• Sie durch die Schwangerschaft in einer finanziellen Notlage sind
-• eine Schwangerschaft Ihre Berufsplanung in Frage stellt oder Sie eine Ausbildung unterbrechen müssen
-• Sie zu vorgeburtlicher Diagnostik einen eigenen Standpunkt finden wollen
-• Sie befürchten, dass Ihr ungeborenes Kind behindert sein könnte
-• Sie um ein Kind trauern, das Sie durch eine Fehlgeburt, Totgeburt oder durch plötzlichen Kindstod verloren haben
-• Sie Fragen zu Verhütung und Familienplanung haben
-• Sie nach einem Schwangerschaftsabbruch mit jemandem sprechen wollen
-• Sie sich in einem Schwangerschaftskonflikt befinden (ein Nachweis über die Beratung kann nicht ausgestellt werden)
+• Sie Fragen zu Schwangerschaft und Geburt haben  
+• es zu Konflikten mit dem Partner oder den Eltern kommt  
+• Sie durch die Schwangerschaft in einer finanziellen Notlage sind  
+• eine Schwangerschaft Ihre Berufsplanung in Frage stellt oder Sie eine Ausbildung unterbrechen müssen  
+• Sie zu vorgeburtlicher Diagnostik einen eigenen Standpunkt finden wollen  
+• Sie befürchten, dass Ihr ungeborenes Kind behindert sein könnte  
+• Sie um ein Kind trauern, das Sie durch eine Fehlgeburt, Totgeburt oder durch plötzlichen Kindstod verloren haben  
+• Sie Fragen zu Verhütung und Familienplanung haben  
+• Sie nach einem Schwangerschaftsabbruch mit jemandem sprechen wollen  
+• Sie sich in einem Schwangerschaftskonflikt befinden (ein Nachweis über die Beratung kann nicht ausgestellt werden)  
 
 Wir nehmen Ihre Fragen und Ängste ernst.
 
